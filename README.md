@@ -1,2 +1,2 @@
 I'm @StateusY, better known as Stateus.
-I just am working on a little game called Teslas Alternator, check it out on itch.io!
+I just am working on little things here and there, hope you take a look around!
